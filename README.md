@@ -12,4 +12,4 @@ Here are some ideas to get you started:
 - 📫 How to reach me: 
 - 😄 Pronouns: he 
 - ⚡ Fun fact: im really good at playing naruto ninja storm
-lalalalal
+
